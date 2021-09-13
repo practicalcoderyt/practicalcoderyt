@@ -1,0 +1,2 @@
+- Hi, I’m @practicalcoderyt, reach me at practicalcoderyt@gmail.com
+- I run a youtube account by the same name with tutorials on how to do some practical coding
